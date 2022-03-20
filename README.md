@@ -1,3 +1,4 @@
 - Hi, I’m Rupert Hernandez
 - I’m interested in technology and making improvments on my skills with tech anmd trying new things to imrpove my skill set
-- I’m currently learning and goin gto school for Medical Office Specialist 
+- I’m currently learning and going to school for Medical Office Specialist 
+- excellent team worker and very great communitcation skills willing to lewarn new skills to improve work quality 

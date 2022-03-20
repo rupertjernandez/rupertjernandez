@@ -1,0 +1,3 @@
+- Hi, I’m Rupert Hernandez
+- I’m interested in technology and making improvments on my skills with tech anmd trying new things to imrpove my skill set
+- I’m currently learning and goin gto school for Medical Office Specialist 
